@@ -1,0 +1,3 @@
+# How to Choose the Right Gym for You: 5 Major Factors to Consider
+
+If you haven’t already, it can really help to write down what your goals may be. Make sure to get as detailed as possible, looking beyond just the gains you want to achieve, but also details such as the time frame, the way in which you want to reach this goal, and how you can track this goal. Additionally, using the SMART (Specific, Measurable, Attainable, Relevant, Timely) goal framework can help make sure your goals are effective and reasonable. These details can make it easy to pick which sort of gym is best for you, and can even speed up your progress.
