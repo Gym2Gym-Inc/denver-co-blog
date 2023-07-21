@@ -1,6 +1,8 @@
-# Profit From Your Private Gym: How to monetize a fitness space
+---
+description: How your private gym in your garage can generate you passive income
+---
 
-How your private gym in your garage can generate you passive income
+# Profit From Your Private Gym: How to monetize a fitness space
 
 ![](https://3134664324-files.gitbook.io/\~/files/v0/b/gitbook-x-prod.appspot.com/o/spaces%2FvvLv2WOJ6NR58qdXqSXM%2Fuploads%2FymCaQ2CfVAOjh7yWgEPJ%2Frsz\_brian-wangenheim-175wmfrmooa-unsplash.jpeg?alt=media\&token=40759f12-e27d-49e7-abb3-38378a33333c)
 
