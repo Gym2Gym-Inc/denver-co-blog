@@ -4,11 +4,11 @@ Have you been away from the gym for a while? Maybe you had an injury, a busy sch
 
 But don’t worry, you’re not alone. Many people experience fitness setbacks at some point in their lives. The good news is that you can regain your strength, endurance, and confidence with some patience and planning. Here are some tips on how to start working out after a long break and enjoy the process.
 
-#### **0.5. Double check with your doctor** <a href="#_4pv3enwo7fqm" id="_4pv3enwo7fqm"></a>
+#### **1. Double-check with your doctor** <a href="#_4pv3enwo7fqm" id="_4pv3enwo7fqm"></a>
 
-Before starting with the rest of the tips, we should mention that if you stopped because of an injury or other medical related reason, it would be a good idea to speak with a doctor in order to make sure it's safe for you to jump back in.
+Before starting with the rest of the tips, we should mention that if you stopped because of an injury or other medical-related reason, it would be a good idea to speak with a doctor in order to make sure it's safe for you to jump back in.
 
-This is to make sure that working out is 100% safe, and there's a reduced risk for any further medical setbacks. Additionally, your doctor can advise you on what types of exercises are safe and suitable for you, and what precautions you should take. They can also help you monitor your progress and adjust your workout plan as needed.
+This is to make sure that working out is 100% safe, and that there's a reduced risk for any further medical setbacks. Additionally, your doctor can advise you on what types of exercises are safe and suitable for you, and what precautions you should take. They can also help you monitor your progress and adjust your workout plan as needed.
 
 One of the most common mistakes people make when returning to exercise after a long break is doing too much too soon. This is especially true if you have lots of experience with lifting heavier weights. But it's important to listen to your body and take it slow at this stage.
 
@@ -28,7 +28,7 @@ Working out after a long break can be hard, but it can also be rewarding. In ord
 
 What are your goals? How do you want to feel? What benefits do you expect to get from exercising? Write down your reasons and keep them somewhere visible, such as on your fridge, mirror, or phone wallpaper. Remind yourself of them whenever you feel like giving up or skipping a workout.
 
-This could be anything, from getting more lean, building more muscle, or being more healthy in general. Whatever it may be, this can help you not only stay motivated but also make more informed decisions around your fitness and your journey as a whole.
+This could be anything, from getting more lean, building more muscle, or being more healthy in general. Whatever it may be, this can help you not only stay motivated but also make more informed decisions about your fitness journey as a whole.
 
 One of the best ways to make working out after a long break easier is to prepare in advance. This means planning your workouts ahead of time, scheduling them in your calendar, setting reminders or alarms, and having everything you need ready to go. For example, you can pack your gym bag the night before, lay out your workout clothes in the morning, or download a fitness app or playlist on your phone.
 
@@ -38,6 +38,6 @@ Doing the same workout over and over again can get boring and stale. To keep thi
 
 Additionally, by varying your workouts, you’ll also challenge different muscles and avoid plateaus.
 
-Finally, working out after a long break is not easy. It takes courage, discipline, and perseverance. That’s why you should reward yourself for every step you take towards your fitness goals. Celebrate your achievements, big and small, with something that makes you happy and proud. It could be anything from buying new workout gear to treating yourself to a massage to sharing your progress with friends or family. Just make sure your rewards are healthy and aligned with your goals.
+Finally, working out after a long break is not easy. It takes courage, discipline, and perseverance. That’s why you should reward yourself for every step you take toward your fitness goals. Celebrate your achievements, big and small, with something that makes you happy and proud. It could be anything from buying new workout gear to treating yourself to a massage to sharing your progress with friends or family. Just make sure your rewards are healthy and aligned with your goals.
 
 Working out after a long break can be daunting but also exciting. You have the opportunity to rediscover your passion for fitness and reap the benefits of a healthier and happier lifestyle.
