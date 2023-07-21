@@ -5,7 +5,6 @@
 * [How to Conquer Gym Anxiety and Feel Confident in the Gym](how-to-conquer-gym-anxiety-and-feel-confident-in-the-gym.md)
 * [Working Out at Home: Better or worse than commercial gyms?](working-out-at-home-better-or-worse-than-commercial-gyms.md)
 * [Profit From Your Private Gym: How to monetize a fitness space](profit-from-your-private-gym-how-to-monetize-a-fitness-space.md)
-* [3 Tips For Finding The Perfect Private Trainer For You](3-tips-for-finding-the-perfect-private-trainer-for-you.md)
 * [Investing in a Home Gym: Revealing the pros and cons](investing-in-a-home-gym-revealing-the-pros-and-cons.md)
 * [Private Gyms vs. Commercial Gyms: Which is right for you?](private-gyms-vs.-commercial-gyms-which-is-right-for-you.md)
 * [Personal Home Gyms: Surprising ways to transform your home](personal-home-gyms-surprising-ways-to-transform-your-home.md)
