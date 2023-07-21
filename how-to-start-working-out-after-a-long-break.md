@@ -18,21 +18,9 @@ Doing this can help you start on the right track and reduce the chances of injur
 
 #### **2. Try working out at home** <a href="#_4e8d91tlsbog" id="_4e8d91tlsbog"></a>
 
-Motivating yourself to get up and go to the gym can be difficult at times, especially when we lose the consistency we once held. Additionally, when taking a break, you may deal with
+Motivating yourself to get up and go to the gym can be difficult at times, especially when we lose the consistency we once held. Additionally, when taking a break, you may deal with [‘gymtimidation’](https://denver.gym2gym.com/how-to-conquer-gym-anxiety-and-feel-confident-in-the-gym), which is intimidation from others at the gym. If this is the case, you may benefit from [working out at home](https://denver.gym2gym.com/private-gyms-vs.-commercial-gyms-which-is-right-for-you). This can be as simple as doing bodyweight exercises, or even investing in a home gym.
 
-[‘gymtimidation’](https://denver.gym2gym.com/how-to-conquer-gym-anxiety-and-feel-confident-in-the-gym)
-
-, which is intimidation from others at the gym. If this is the case, you may benefit from
-
-[working out at home](https://denver.gym2gym.com/private-gyms-vs.-commercial-gyms-which-is-right-for-you)
-
-. This can be as simple as doing body weight exercises, or even investing in a home gym.
-
-This can help get back into the groove of working out, without the extra hassle. Whether this is temporary or permanent, it can be very convenient. Home gyms can also be a better option, if you want to save on gym memberships. If you want to save on the subscriptions over time, you can invest in a home gym, which will save you money in the long run. Additionally,
-
-[renting out your home gym can help you save on your initial investment](https://denver.gym2gym.com/profit-from-your-private-gym-how-to-monetize-a-fitness-space)
-
-, and eventually even allow you to breakeven.
+This can help get back into the groove of working out, without the extra hassle. Whether this is temporary or permanent, it can be very convenient. Home gyms can also be a better option if you want to save on gym memberships. If you want to save on subscriptions over time, you can invest in a home gym, which will save you money in the long run. Additionally, [renting out your home gym can help you save on your initial investment](https://denver.gym2gym.com/profit-from-your-private-gym-how-to-monetize-a-fitness-space), and eventually even allow you to break even.
 
 #### **3. Set goals for yourself** <a href="#_qf401ekumnca" id="_qf401ekumnca"></a>
 
@@ -40,7 +28,7 @@ Working out after a long break can be hard, but it can also be rewarding. In ord
 
 What are your goals? How do you want to feel? What benefits do you expect to get from exercising? Write down your reasons and keep them somewhere visible, such as on your fridge, mirror, or phone wallpaper. Remind yourself of them whenever you feel like giving up or skipping a workout.
 
-This could be anything, from getting more lean, building more muscle, or being more healthy in general. Whatever it may be, this can help you not only stay motivated, but also make more informed decisions around your fitness and your journey as a whole.
+This could be anything, from getting more lean, building more muscle, or being more healthy in general. Whatever it may be, this can help you not only stay motivated but also make more informed decisions around your fitness and your journey as a whole.
 
 One of the best ways to make working out after a long break easier is to prepare in advance. This means planning your workouts ahead of time, scheduling them in your calendar, setting reminders or alarms, and having everything you need ready to go. For example, you can pack your gym bag the night before, lay out your workout clothes in the morning, or download a fitness app or playlist on your phone.
 
