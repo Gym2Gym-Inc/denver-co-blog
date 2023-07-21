@@ -19,3 +19,4 @@
 * [The 15 Best Routines For Your At-Home Workout](the-15-best-routines-for-your-at-home-workout.md)
 * [How to Get Personal Training Clients: 6 Proven Methods](how-to-get-personal-training-clients-6-proven-methods.md)
 * [How to Save On Your Gym Membership: 4 Proven Tips](how-to-save-on-your-gym-membership-4-proven-tips.md)
+* [3 Tips For Finding The Perfect Private Trainer For You](3-tips-for-finding-the-perfect-private-trainer-for-you.md)
