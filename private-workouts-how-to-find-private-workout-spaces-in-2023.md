@@ -12,7 +12,7 @@ Private spaces eliminate distractions, allowing you to concentrate on your worko
 
 When exercising in private, you can feel more at ease and less self-conscious, enabling you to push your limits and explore different exercises with confidence.
 
-**1.3. Personalized Environment**
+**Personalized Environment**
 
 Private spaces allow you to create a workout environment that aligns with your preferences, whether it's selecting your preferred music, setting the lighting, or controlling the temperature.
 
