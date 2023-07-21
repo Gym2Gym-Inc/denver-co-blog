@@ -1,6 +1,10 @@
-# Should You Join a Gym in 2023? Three Important Factors to Consider
+---
+description: >-
+  Things to consider before signing up for a membership, and some alternatives
+  to reach your fitness goals
+---
 
-Things to consider before signing up for a membership, and some alternatives to reach your fitness goals
+# Should You Join a Gym in 2023? Three Important Factors to Consider
 
 ![](https://3134664324-files.gitbook.io/\~/files/v0/b/gitbook-x-prod.appspot.com/o/spaces%2FvvLv2WOJ6NR58qdXqSXM%2Fuploads%2Fy0i0EIRXFmHWRHBAfXit%2F0.jpeg?alt=media)
 
@@ -28,21 +32,9 @@ You can also find ways to save money on fitness outside of the gym. Look for fre
 
 #### **Alternatives to public gyms** <a href="#_b0zanfife9a1" id="_b0zanfife9a1"></a>
 
-One alternative to gyms are home gyms. If you tend to like privacy and convenience, home gyms may be a great alternative for you. Home gyms can range from an expensive
+One alternative to gyms is home gyms. If you tend to like privacy and convenience, home gyms may be a great alternative for you. Home gyms can range from an expensive [investment](https://denver.gym2gym.com/investing-in-an-at-home-gym-revealing-the-pros-and-cons) all the way to a [simple and affordable set-up](https://denver.gym2gym.com/personal-home-gyms-surprising-ways-to-transform-your-home). Technically, all you really need are a couple of weights and some other affordable equipment. However, this all depends on your fitness goals and usual routines.
 
-[investment](https://denver.gym2gym.com/investing-in-an-at-home-gym-revealing-the-pros-and-cons)
-
-all the way to a
-
-[simple and affordable set-up](https://denver.gym2gym.com/personal-home-gyms-surprising-ways-to-transform-your-home)
-
-. Technically, all you really need are a couple weight and some other affordable equipment. However, this all depends on your fitness goals and usual routines.
-
-If you do decide to make a larger investment, you can still make the investment worth your while (aside from getting good workouts in). Using Gym2Gym’s platform, you can
-
-[rent out your space](https://denver.gym2gym.com/profit-from-your-private-gym-how-to-monetize-a-fitness-space)
-
-to people in your area when you aren’t using it. This can help you not only break even on your investment, but also make some more back later on.
+If you do decide to make a larger investment, you can still make the investment worth your while (aside from getting good workouts in). Using Gym2Gym’s platform, you can [rent out your space](https://denver.gym2gym.com/profit-from-your-private-gym-how-to-monetize-a-fitness-space) to people in your area when you aren’t using it. This can help you not only break even on your investment but also make some more back later on.
 
 Additionally, if you want the private home gym experience without using your own space and/or putting money toward the investment, you can also use Gym2Gym’s platform to find home gyms for rent in your area. Instead of spending a bunch of money on a home gym, spend a fraction and use one in your area today!
 
