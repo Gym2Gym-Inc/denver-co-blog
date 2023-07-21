@@ -24,13 +24,9 @@ Another factor to consider when deciding whether to work out at home or at the g
 
 However, working out at home doesn't necessarily mean you have to sacrifice quality equipment. You can purchase your own equipment, such as dumbbells, resistance bands, and yoga mats, to create a private gym. While this can be an investment, it can also save you money in the long run by eliminating the need for a gym membership. However, working out at home can be difficult if you’re looking for a full workout, but don’t want to put in large investments.
 
-If this is a problem you’re facing, but are looking for a private gym experience, there still exist alternatives. Using
+If this is a problem you’re facing, but are looking for a private gym experience, there still exist alternatives. Using [Gym2Gym](http://gym2gym.com/)’s platform, you can look for private gyms near you that have a variety of equipment and facilities, while only putting a fraction of the cost to use them. Additionally, Gym2Gym allows you to look for **private trainers** that can meet you at the private gyms to help you get a better workout in.
 
-[Gym2Gym](http://gym2gym.com/)
-
-’s platform, you can look for private gyms near you that have a variety of equipment and facilities, while only putting a fraction of the cost to use them. Additionally, Gym2Gym allows you to look for **private trainers** that can meet you at the private gyms to help you get a better workout in.
-
-As mentioned before, motivation is a key factor in staying consistent with a workout routine. Home gyms can lead to a lack of motivation and laziness, while going to the gym can provide motivation by creating a social environment and holding you accountable for showing up. Additionally, seeing other people working out can be inspiring and push you to work harder.
+As mentioned before, motivation is a key factor in staying consistent with a workout routine. Home gyms can lead to a lack of motivation and laziness while going to the gym can provide motivation by creating a social environment and holding you accountable for showing up. Additionally, seeing other people working out can be inspiring and push you to work harder.
 
 At home, it can be easy to get distracted or lose motivation, especially if you don't have a designated space for working out. However, some people find that working out at home provides more motivation because they can create a personalized space that suits their needs and preferences.
 
@@ -40,8 +36,8 @@ One of the biggest concerns with working out at the gym is the **potential for g
 
 On the other hand, when you work out at home, you have complete control over the cleanliness of your workout space. You can easily sanitize your equipment before and after use, and keep your space clean and hygienic.
 
-However, it’s important to note that simply being at home doesn't automatically mean that your workout space is clean and hygienic. It’s important to regularly clean any equipment you use at home to maintain a hygienic environment and reduce the risk of illness or infection. This means wiping down your weights, mats, and any other equipment you may use with disinfectant wipes or spray. Its important to keep this in mind, and that choosing to work out at home with equipment also comes with this responsibility.
+However, it’s important to note that simply being at home doesn't automatically mean that your workout space is clean and hygienic. It’s important to regularly clean any equipment you use at home to maintain a hygienic environment and reduce the risk of illness or infection. This means wiping down your weights, mats, and any other equipment you may use with disinfectant wipes or spray. It's important to keep this in mind, and that choosing to work out at home with equipment also comes with this responsibility.
 
 Overall, while working out at home may offer more control over hygiene, it still requires an active effort to maintain a clean and safe environment. However, with proper care and attention, you can create a hygienic workout space that is tailored to your needs and preferences, and eliminate any concerns about hygiene or cleanliness that you may have about working out at the gym.
 
-Ultimately, the decision of whether to work out at home or at the gym depends on personal preference and individual circumstances. Working out at home can provide convenience and eliminate the need for a gym membership, while going to the gym can provide access to quality equipment and a motivating environment. Ultimately, the most important factor is consistency and finding a routine that works best for you.
+Ultimately, the decision of whether to work out at home or at the gym depends on personal preference and individual circumstances. Working out at home can provide convenience and eliminate the need for a gym membership while going to the gym can provide access to quality equipment and a motivating environment. Ultimately, the most important factor is consistency and finding a routine that works best for you.
