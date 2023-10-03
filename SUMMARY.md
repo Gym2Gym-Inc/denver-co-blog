@@ -1,6 +1,7 @@
 # Table of contents
 
 * [Denver, Colorado](README.md)
+* [How to make an effective Gym2Gym listing](how-to-make-an-effective-gym2gym-listing.md)
 * [Why Private Gyms Are More Hygienic For Your Fitness Journey](why-private-gyms-are-more-hygienic-for-your-fitness-journey.md)
 * [How to Conquer Gym Anxiety and Feel Confident in the Gym](how-to-conquer-gym-anxiety-and-feel-confident-in-the-gym.md)
 * [Working Out at Home: Better or worse than commercial gyms?](working-out-at-home-better-or-worse-than-commercial-gyms.md)
