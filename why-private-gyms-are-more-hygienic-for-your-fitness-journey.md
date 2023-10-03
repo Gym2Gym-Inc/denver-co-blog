@@ -1,6 +1,8 @@
-# Why Private Gyms Are More Hygienic For Your Fitness Journey
+---
+description: Why public gyms may not be as clean as you may have thought...
+---
 
-Why public gyms may not be as clean as you may have thought...
+# Why Private Gyms Are More Hygienic For Your Fitness Journey
 
 ![](https://3134664324-files.gitbook.io/\~/files/v0/b/gitbook-x-prod.appspot.com/o/spaces%2FvvLv2WOJ6NR58qdXqSXM%2Fuploads%2FtE8boDBAvR60Hre4J3sx%2Frsz\_jonathan-borba-lrqptqs7nqq-unsplash.jpeg?alt=media\&token=e2e51cb5-e44c-4068-85a2-c6e081f6d195)
 
