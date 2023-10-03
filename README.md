@@ -1,6 +1,6 @@
 ---
 description: Revolutionizing Private Fitness for Colorado Citizens with Gym2Gym
-cover: .gitbook/assets/Denver_g2g-ad resized.png
+cover: .gitbook/assets/Colorado_G2G_ad.png
 coverY: 0
 ---
 
