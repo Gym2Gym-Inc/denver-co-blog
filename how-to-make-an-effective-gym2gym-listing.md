@@ -1,3 +1,7 @@
+---
+description: A step by step guide in how to not overthink it
+---
+
 # How to make an effective Gym2Gym listing
 
 
